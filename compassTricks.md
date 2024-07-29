@@ -1,0 +1,1 @@
+Magnets are the magic of compasses! 
